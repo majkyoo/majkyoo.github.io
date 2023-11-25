@@ -1,1 +1,0 @@
-# majkyoo.github.io
